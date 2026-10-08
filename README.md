@@ -1,1 +1,1 @@
-# Yerli-Milli-Hesap
+# YERLİ MİLLİ HESAP
